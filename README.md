@@ -5,7 +5,7 @@
 
 - How to reach me **cnozsy@gmail.com**
 
-- Know about my experiences [from this link](https://www.dropbox.com/s/pyl1593nciku9qa/can_ozsoy_cv.pdf?dl=0)
+- Know about my experiences [https://www.dropbox.com/s/pyl1593nciku9qa/can_ozsoy_cv.pdf?dl=0](this link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
